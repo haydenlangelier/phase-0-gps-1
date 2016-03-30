@@ -16,5 +16,3 @@
 My favorite site [IGN] (http://www.ign.com/)
 
 
-
-
