@@ -15,10 +15,4 @@
 
 My favorite site [IGN] (http://www.ign.com/)
 
-rawrrrrkkkkkkkkkkkkkkkkkkkkkkkkkkkk
-ddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddddddddddd
-dddddddddddddddddddddddddddddddddd
 
-rawrrrrrr
