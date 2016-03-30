@@ -11,3 +11,6 @@ What still confuses you about Git?
 it mostly makes sense now, i dont know what i dont know yet 
 How was your first experience of pairing in a GPS?
 It was great, i want more facetime with someone who knows their stuff well 
+
+
+Success!!!
